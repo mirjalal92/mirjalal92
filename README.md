@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Mirjalal Movsumov
+- 👀 I’m interested in Development
